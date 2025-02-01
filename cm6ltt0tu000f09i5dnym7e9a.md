@@ -4,7 +4,7 @@ datePublished: Sat Feb 01 2025 06:42:36 GMT+0000 (Coordinated Universal Time)
 cuid: cm6ltt0tu000f09i5dnym7e9a
 slug: dui-shaw-waqt-2024-chorki-original
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1738391317958/9713f6da-0d20-4e51-8776-4a9a824b24ee.jpeg
-tags: dui-shaw
+tags: bangla, web-series, dui-shaw, chorki
 
 ---
 
@@ -12,11 +12,11 @@ tags: dui-shaw
 
 ### Dui Shaw - Waqt (2024) Chorki Original - 720P - Watch & Download
 
-## &lt;——————————— Watch ———————&gt;
+## &lt;———————— Watch ———————&gt;
 
 <iframe src="https://freeplayer.pages.dev/?link=https://st1.ranoz.gg/ocLkEtVh-Dui.Shaw.-.Waqt.(2024).Chorki.Original.-.720P.mkv" style="border:0px #ffffff none" height="460px" width="100%"></iframe>
 
-## &lt;——————————— Download —-———————&gt;
+## &lt;———————— Download ———————&gt;
 
 ### 1 Click Download Links -
 
